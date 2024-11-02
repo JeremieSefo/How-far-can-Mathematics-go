@@ -4,6 +4,9 @@ We are a group of former mathematics students from the University of Yaounde 1, 
 
 ![Member](./Flyer0.jpg)
 
+[Click here to watch our 1st workshop on Mathematics in Transport plannification and Urban management on 02 November](https://drive.google.com/drive/folders/1asXj2nZSIOi0qARWrQCQuJnOq2Od3P7h?usp=drive_link)
+
+
 [Please, register here for the upcoming workshops](https://docs.google.com/forms/d/e/1FAIpQLSeHaIzC-cKjFsKa3nsVuUfatDVNKkG4hOe1k7Iv6O-BYkvuug/viewform?usp=sf_link)
 
 [To see pictures of the inauguration event, click here](https://drive.google.com/drive/folders/1Ppzy8oI-qy96I1mjETr3m-qS7y09nRLL?usp=drive_link)
