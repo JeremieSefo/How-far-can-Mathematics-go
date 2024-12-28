@@ -4,6 +4,8 @@ We are a group of former mathematics students from the University of Yaounde 1, 
 
 ![Member](./Flyer0.jpg)
 
+[Click here to watch our 4th workshop on Actuary from December 28](https://drive.google.com/drive/folders/1k4DYm2fyfGifBA3BiWZecMWWOg8299WF?usp=drive_link)
+
 [Click here to watch our 3rd workshop on AI and Data Science from November 30](https://drive.google.com/drive/folders/1L2_JNNcDDACf4cL6LAxfPBQaR026__7q?usp=drive_link)
 
 [Click here to watch our 2nd workshop on Applied Mathematical Research from November 16](https://drive.google.com/drive/folders/1egrQsaXu8hD-1owf4Jx_FP9KFjRSdVIt?usp=drive_link)
