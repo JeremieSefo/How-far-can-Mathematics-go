@@ -4,6 +4,8 @@ We are a group of former mathematics students from the University of Yaounde 1, 
 
 ![Member](./Flyer0.jpg)
 
+[Click here to watch our 6th workshop on Cybersecurity and Cryptography from February 23](https://drive.google.com/file/d/1Uk2-bK6ixei02xzkhWlCoHZsD45G-F37/view?usp=drive_link)
+
 [Click here to watch our 5th workshop on Economy and Statistics from January 26](https://drive.google.com/drive/folders/1rUR_6SDR9LG-vCNv3GidUYVA7gDbQvwG?usp=drive_link)
 
 [Click here to watch our 4th workshop on Actuary from December 28](https://drive.google.com/drive/folders/1k4DYm2fyfGifBA3BiWZecMWWOg8299WF?usp=drive_link)
